@@ -8,6 +8,8 @@
 
 [play list](https://www.youtube.com/watch?v=H8W9oMNSuwo&list=PLxbwE86jKRgMpuZuLBivzlM8s2Dk5lXBQ&index=3)
 
+[play list in arabic](https://www.youtube.com/watch?v=-a_WrEwU20g&list=PLPBnj6azlABanyaILYOT0FKKtcSoeOc2A&index=3)
+
 ----
 ## concept
 
