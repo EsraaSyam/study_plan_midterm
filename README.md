@@ -21,6 +21,8 @@
 
 [play list](https://youtube.com/playlist?list=PLpz5a69-3Ux70LOuf54ddV5pAOyPao73N)
 
+[pdf](https://docs.google.com/document/d/1FMCWA4HK3fXm4cQEYp0Brd1XIgKepAemBwlvuJm7yro/edit)
+
 ---
 ## Algorithms
 
