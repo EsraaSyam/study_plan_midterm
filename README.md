@@ -30,6 +30,8 @@
 
 [week 2](https://drive.google.com/drive/folders/1kwH7MUhCKCX1_T9dD0ujbyjlja-HWK1N)
 
+[weak 3](https://drive.google.com/drive/folders/1tGxFVDJSnM0VE5svhYDY8iuQOvlgFRuc)
+
 [play list](https://www.youtube.com/watch?v=MztarhEYNYM&list=PLL2zWZTDFZzjxarUL23ydiOgibhRipGYC&index=23)
 
 ---
@@ -38,6 +40,8 @@
 [week 1](https://drive.google.com/drive/folders/1cWtZEWEd4fWcirIEDmm63wrRUKDi0fy_)
 
 [week 2](https://drive.google.com/drive/folders/1mG83vbBziN4ybRLmo2sdCHBA9_80H7-v)
+
+[weak 3](https://drive.google.com/drive/folders/1tHmPh4m48FhQlxLBp43QcuiIkBHVp7yD)
 
 [play list](https://www.youtube.com/watch?v=VXyjgzbxH0Q&list=PLMm8EjqH1EFVodghdDWaAuHkHqj-nJ0bN)
 
